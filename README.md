@@ -1,3 +1,4 @@
-![image](https://github.com/gchang110101/Instalaci-n-WP/assets/111550683/a8b20ae1-bc7b-4ad0-acb4-d36c34b29ef8)
-![image](https://github.com/gchang110101/Instalaci-n-WP/assets/111550683/c357650a-da3f-4eaf-b047-03d0f1e3baa2)
-![image](https://github.com/gchang110101/Instalaci-n-WP/assets/111550683/bcf4bbae-b931-454b-93ba-306d35e31798)
+![image](https://github.com/gchang110101/Instalaci-n-WP/assets/111550683/9527cb0b-41b3-48f9-9191-53df337961a8)
+![image](https://github.com/gchang110101/Instalaci-n-WP/assets/111550683/0cbfa79a-5ed1-4409-bb8a-49d0326a5843)
+![image](https://github.com/gchang110101/Instalaci-n-WP/assets/111550683/23e2f94c-4c94-4386-a12a-693595634aa0)
+![image](https://github.com/gchang110101/Instalaci-n-WP/assets/111550683/8ed30f98-f71b-4f60-bb89-edc9d739a95d)
